@@ -1,1 +1,1 @@
-Das sind die contribution rules.
+Das sind die contribution regeln.
