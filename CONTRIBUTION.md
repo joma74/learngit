@@ -1,1 +1,1 @@
-Das sind die contribution regeln.
+Das sind die teilnahmebedingungen.
