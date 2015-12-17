@@ -1,1 +1,1 @@
-Das sind die teilnahmebedingungen.
+CH1 Das sind die teilnahmebedingungen.
